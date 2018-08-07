@@ -1,6 +1,6 @@
 ## FairyWooBang日报 2018/08/08 第6期
 
-![](http://oiuhevdur.bkt.clouddn.com/fairywoobang/clem-onojeghuo-189661-unsplash.jpg)
+![FairyWooBang Daily 6](http://oiuhevdur.bkt.clouddn.com/fairywoobang/clem-onojeghuo-189661-unsplash.jpg)
 
 ### 用20小时高效学习任何技能
 
