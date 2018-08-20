@@ -1,5 +1,5 @@
 ## FairyWooBang日报 2018/08/21 第7期
-
+![FairyWooBang日报 2018/08/21 第7期](http://oiuhevdur.bkt.clouddn.com/fairywoobang/haley-hamilton-656653-unsplash.jpg)
 ### H5前端性能测试实践 
 预计 **6分钟读完**
 **链接**：https://tech.youzan.com/h5qian-duan-xing-neng-ce-shi/
