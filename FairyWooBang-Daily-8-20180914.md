@@ -1,5 +1,7 @@
 ## FairyWooBang日报 2018/09/14 第8期
 
+![](http://oiuhevdur.bkt.clouddn.com/fairywoobang/ryan-loughlin-275646-unsplash.jpg)
+
 ### 提升外语水平从平时做起 
 
 预计 **10分钟读完**
